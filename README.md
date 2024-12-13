@@ -1,0 +1,1 @@
+# Rakamlar-b-y-kten-k-e-s-ralama-Assembly-8086
